@@ -103,4 +103,3 @@ just kidding i have nothing set up to do so yet.
 <br />
 
 ----
-<div align="center">Generated using <a href="https://profilinator.rishav.dev/" target="_blank">Github Profilinator</a></div>
