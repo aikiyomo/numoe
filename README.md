@@ -101,5 +101,3 @@ Give me your money
 just kidding i have nothing set up to do so yet.  
 
 <br />
-
-----
